@@ -1,4 +1,4 @@
-Hi there, my name is Sadia Sleweon and welcome to my GitHub! :)
+Hi there, my name is Sadia Sleweon and welcome to my GitHub! 
 
 When I am not coding away on the computer, I enjoy cooking, reading and nature activities. 
 As an ENFP personality type I am conceptual, open minded, analytical and insightful. 
